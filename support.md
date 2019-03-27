@@ -1,2 +1,2 @@
 ## Support 
-For all contacts, please write to our [telegram](http://t.me/DastaSupport)
+For all contacts, please write to [DastaSupport](http://t.me/DastaSupport)
